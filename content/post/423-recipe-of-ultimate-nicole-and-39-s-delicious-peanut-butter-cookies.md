@@ -1,0 +1,89 @@
+---
+description: "Recipe of Ultimate Nicole&amp;#39;s Delicious Peanut Butter Cookies"
+title: "Recipe of Ultimate Nicole&amp;#39;s Delicious Peanut Butter Cookies"
+slug: 423-recipe-of-ultimate-nicole-and-39-s-delicious-peanut-butter-cookies
+date: 2021-01-03T00:40:57.151Z
+image: https://img-global.cpcdn.com/recipes/71989532/751x532cq70/nicoles-delicious-peanut-butter-cookies-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/71989532/751x532cq70/nicoles-delicious-peanut-butter-cookies-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/71989532/751x532cq70/nicoles-delicious-peanut-butter-cookies-recipe-main-photo.jpg
+author: Birdie Castro
+ratingvalue: 4.2
+reviewcount: 2586
+recipeingredient:
+- "2 cup Shifted Flour"
+- "1 1/2 tsp Baking Soda"
+- "2 large Eggs"
+- "1 tsp Vanillia Extract"
+- "1 cup Peanut Butter"
+- "1 cup Butter"
+- "1 cup Brown Sugar"
+- "1 cup White Sugar"
+recipeinstructions:
+- "Set Oven Temp to 400°F. Make sure oven is nice and hot so your cookies will come out perfect."
+- "In large mixing bowl, Combine Eggs,Vanilla, Peanut Butter, Butter, Brown Sugar, White Sugar. Mix until batter is smooth."
+- "Then Add; Shifted Flour, Baking Soda into batter. Until nice and smooth then roll into ball and set in frig for One hour to firm batter up."
+- "If you decide you want to add something more to the batter. You can always add One cup of Raisins or cup of nuts ot cup of chocolate chips. Whatever you decide just make sure its about a cup."
+- "then scoop and roll into small balls and set in cookie sheet. Do Not flatten balls,they will with the heat of the oven as they bake,"
+- "Bake Cookies for 8 mins no longer or they will come out hard and taste burnt."
+- "Cookies may not  look like there done after 8 mins but they are,and will firm up as soon as the air hits them after couple of mins."
+categories:
+- Recipe
+tags:
+- nicoles
+- delicious
+- peanut
+
+katakunci: nicoles delicious peanut 
+nutrition: 154 calories
+recipecuisine: American
+preptime: "PT10M"
+cooktime: "PT34M"
+recipeyield: "4"
+recipecategory: Lunch
+
+---
+
+
+![Nicole&#39;s Delicious Peanut Butter Cookies](https://img-global.cpcdn.com/recipes/71989532/751x532cq70/nicoles-delicious-peanut-butter-cookies-recipe-main-photo.jpg)
+
+Hello everybody, hope you're having an amazing day today. Today, I'm gonna show you how to prepare a distinctive dish, nicole&#39;s delicious peanut butter cookies. It is one of my favorites. For mine, I will make it a little bit tasty. This will be really delicious.
+
+Nicole&#39;s Delicious Peanut Butter Cookies is one of the most well liked of current trending meals on earth. It's enjoyed by millions daily. It's simple, it is fast, it tastes yummy. They are fine and they look fantastic. Nicole&#39;s Delicious Peanut Butter Cookies is something which I have loved my entire life.
+
+
+
+
+To get started with this particular recipe, we must prepare a few components. You can cook nicole&#39;s delicious peanut butter cookies using 8 ingredients and 7 steps. Here is how you cook that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Nicole&#39;s Delicious Peanut Butter Cookies:
+
+1. Take 2 cup Shifted Flour
+1. Make ready 1 1/2 tsp Baking Soda
+1. Take 2 large Eggs
+1. Take 1 tsp Vanillia Extract
+1. Get 1 cup Peanut Butter
+1. Get 1 cup Butter
+1. Take 1 cup Brown Sugar
+1. Make ready 1 cup White Sugar
+
+
+
+
+<!--inarticleads2-->
+
+##### Steps to make Nicole&#39;s Delicious Peanut Butter Cookies:
+
+1. Set Oven Temp to 400°F. Make sure oven is nice and hot so your cookies will come out perfect.
+1. In large mixing bowl, Combine Eggs,Vanilla, Peanut Butter, Butter, Brown Sugar, White Sugar. Mix until batter is smooth.
+1. Then Add; Shifted Flour, Baking Soda into batter. Until nice and smooth then roll into ball and set in frig for One hour to firm batter up.
+1. If you decide you want to add something more to the batter. You can always add One cup of Raisins or cup of nuts ot cup of chocolate chips. Whatever you decide just make sure its about a cup.
+1. then scoop and roll into small balls and set in cookie sheet. Do Not flatten balls,they will with the heat of the oven as they bake,
+1. Bake Cookies for 8 mins no longer or they will come out hard and taste burnt.
+1. Cookies may not  look like there done after 8 mins but they are,and will firm up as soon as the air hits them after couple of mins.
+
+
+
+
+So that's going to wrap this up for this exceptional food nicole&#39;s delicious peanut butter cookies recipe. Thanks so much for reading. I am sure you will make this at home. There is gonna be interesting food at home recipes coming up. Don't forget to save this page on your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!
